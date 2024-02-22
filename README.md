@@ -1,7 +1,7 @@
 # -PEACEFULLY-AND-PATRIOTICALLY-
 The Evidence of 2020
 
-                         ![image](https://github.com/carl1961/-PEACEFULLY-AND-PATRIOTICALLY-/assets/3056821/843a4e18-4122-4d46-b84e-b54afe422902)
+![image](https://github.com/carl1961/-PEACEFULLY-AND-PATRIOTICALLY-/assets/3056821/843a4e18-4122-4d46-b84e-b54afe422902)
 
 “PEACEFULLY AND PATRIOTICALLY”
 The Honorable Bennie G. Thompson
@@ -67,7 +67,6 @@ of the American people, simply asked that it be a part of your Committee’s wor
 It wasn’t.
 In addition, the Unselect Committee has willfully ignored the fact that days before
 January 6, 2021, I recommended and authorized thousands of troops to be
-3
 deployed to ensure that there was peace, safety, and security at the Capitol and
 throughout Washington, D.C. on January 6th because I knew, just based on instinct
 and what I was hearing, that the crowd coming to listen to my speech, and various
@@ -126,13 +125,13 @@ Congresswoman Elaine Luria
 Congresswoman Liz Cheney
 Congressman Adam Kinzinger
 
-                  # APPENDIX
+# APPENDIX
 ![image](https://github.com/carl1961/-PEACEFULLY-AND-PATRIOTICALLY-/assets/3056821/1d495bae-847d-42c5-abb0-2859ed8a6871)
 ![image](https://github.com/carl1961/-PEACEFULLY-AND-PATRIOTICALLY-/assets/3056821/26ba0d4c-ed50-4550-8c9e-1296300dee54)
 ![image](https://github.com/carl1961/-PEACEFULLY-AND-PATRIOTICALLY-/assets/3056821/7e381b26-a8dc-403e-8f17-fe9989c98f77)
 ![image](https://github.com/carl1961/-PEACEFULLY-AND-PATRIOTICALLY-/assets/3056821/209572af-b56a-4dd7-a31b-cce75e72401a)
 
-                    # Arizona
+# Arizona
 
 • Maricopa County accepted at least 20,000 mail-in ballots after Election
 Day 2020, including 18,000 on November 4, 2020, picked up from the
@@ -177,7 +176,7 @@ documents for all Election equipment and ballots, in violation of A.R.S.
 • At least 740,000 ballots violated chain of custody requirements in
 Maricopa County.
  
-                  # Georgia
+ # Georgia
 
 • 43,907 ballots from Facebook-funded drop boxes were counted in
 DeKalb County that violated the chain of custody rules. Remember,
@@ -229,7 +228,7 @@ custody. Those ballots came from drop boxes.
 remotely. In Antrim County, 7,048 votes were changed in favor of Joe
 Biden.
  
-#                      Pennsylvania
+# Pennsylvania
 • In Pennsylvania, as of February 2021, there were 121,240 more votes
 than voters. By law, Pennsylvania cannot certify an Election with this
 type of discrepancy.
@@ -247,7 +246,7 @@ stand down and not investigate Election irregularities, even after
 McSwain reported that his office “received various allegations of voter
 fraud and election irregularities.”
  
-#                     Wisconsin
+# Wisconsin
 • In Wisconsin, nearly 200,000 voters identified as “indefinitely
 confined,” even though that was often not the case. They were simply
 using COVID as a means to skirt Voter ID laws for mail-in ballots.
