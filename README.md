@@ -117,15 +117,24 @@ Donald J. Trump
 
 CC:
 Congresswoman Zoe Lofgren
+
 Congressman Adam Schiff
+
 Congressman Pete Aguilar
+
 Congresswoman Stephanie Murphy
+
 Congressman Jamie Raskin
+
 Congresswoman Elaine Luria
+
 Congresswoman Liz Cheney
+
 Congressman Adam Kinzinger
 
+
 # APPENDIX
+
 ![image](https://github.com/carl1961/-PEACEFULLY-AND-PATRIOTICALLY-/assets/3056821/1d495bae-847d-42c5-abb0-2859ed8a6871)
 ![image](https://github.com/carl1961/-PEACEFULLY-AND-PATRIOTICALLY-/assets/3056821/26ba0d4c-ed50-4550-8c9e-1296300dee54)
 ![image](https://github.com/carl1961/-PEACEFULLY-AND-PATRIOTICALLY-/assets/3056821/7e381b26-a8dc-403e-8f17-fe9989c98f77)
