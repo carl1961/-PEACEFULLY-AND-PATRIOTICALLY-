@@ -116,6 +116,7 @@ Donald J. Trump
 45th President of the United States
 
 CC:
+
 Congresswoman Zoe Lofgren
 
 Congressman Adam Schiff
