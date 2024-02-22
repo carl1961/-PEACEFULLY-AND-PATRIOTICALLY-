@@ -1,5 +1,6 @@
 # -PEACEFULLY-AND-PATRIOTICALLY-
 The Evidence of 2020
+
 ![image](https://github.com/carl1961/-PEACEFULLY-AND-PATRIOTICALLY-/assets/3056821/843a4e18-4122-4d46-b84e-b54afe422902)
 
 “PEACEFULLY AND PATRIOTICALLY”
@@ -9,6 +10,7 @@ The Select Committee
 to Investigate the January 6th Attack on the U.S. Capitol
 Longworth House Office Building
 Washington, D.C. 20515
+
 Dear Chairman Thompson,
 THE PRESIDENTIAL ELECTION OF 2020 WAS RIGGED AND STOLEN!
 The same group of Radical Left Democrats who utilized their Majority position in
